@@ -2,7 +2,7 @@
 - 👀 I’m interested in Python
 - 🌱 I’m currently learning Python
 - 💞️ I’m looking to collaborate on Python
-- 📫 How to reach me Facebook https://www.facebook.com/moshy.10
+- 📫 How to reach me 
 - 😄 Pronouns: Euly (uli)
 - ⚡ Fun fact: Guide me Please :)
 
